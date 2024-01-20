@@ -2,7 +2,7 @@
 - 👀 I’m interested in quite literally everything
 - 🌱 I’m currently learning HTML, CSS, Python & JavaScript
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: @luvremak in Telegram
+- 📫 How to reach me: @luvremak on Telegram
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
