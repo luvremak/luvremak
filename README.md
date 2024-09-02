@@ -1,5 +1,4 @@
 I’m @luvremak
-I’m currently learning HTML, CSS, Python & JavaScript
 How to reach me: @luvremak on Telegram
 Pronouns: she/her
 
